@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there 👋 (updated)
 
 ## About Me
 🎓 I'm in my final semester of senior year (almost there - hurray!)
